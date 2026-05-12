@@ -1,4 +1,4 @@
-# 
+# rare JetBrains Rider for PC | JetBrains Rider for Windows Script | intelligent-suggestions + testing-tools offers the most advanced JetBrains Rider for PC | JetBrains Rider for
 
 
 
